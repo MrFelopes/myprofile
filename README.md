@@ -1,2 +1,3 @@
 # myprofile
 kid amogus backwards is...
+sugoma dik ohhhhhhhhhhhhhhhhhhhhhhhhhhh my gooooooooooooooood
